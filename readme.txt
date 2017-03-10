@@ -1,4 +1,2 @@
-branch is bullshit
-bullshit!!! bullshit!!!
-laji!!s
+branch is shit.
 
